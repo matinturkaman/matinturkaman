@@ -1,4 +1,4 @@
-### Hi there ![88677602-1635ba80-d120-11ea-84d8-d263ba5fc3c0](https://user-images.githubusercontent.com/79017406/142844976-a331bf69-dab7-4051-a363-5804bb80e617.gif)
+### Hi there 
 
 
 <!--
